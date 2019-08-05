@@ -10,3 +10,5 @@ Proforma : Trial of Violent Crimes by Courts, Murder, Attempt to Murder, C H Not
 
 
 Please check video of analysis at https://drive.google.com/file/d/1LkNMIPQoPaX9pGNUkdboxOAetVx7_F7v/view?usp=sharing
+
+Question if any please send email at omsarmalkar@gmail.com
